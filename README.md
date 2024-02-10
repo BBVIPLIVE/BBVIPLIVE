@@ -1,0 +1,14 @@
+https://paste.rs/MHkD8.txt
+https://paste2.org/XsOwm9xD
+http://pastie.org/p/1rB5dToiHTBAhSm18OhPap
+http://paste.jp/61a30373/
+https://paste.ee/p/W4MqT
+https://glot.io/snippets/gta5az5vwc
+https://notes.io/wiH9b
+https://etextpad.com/419poi4f1z
+https://etextpad.com/5uivzvewn1
+https://snippet.host/obcxza
+https://jsfiddle.net/0a4y8bhs/
+https://paiza.io/projects/9QOjVDM-JJhlHaIBnCLmwQ
+https://pastelink.net/qtybd9dr
+https://bitbin.it/NGrVRa0v/
